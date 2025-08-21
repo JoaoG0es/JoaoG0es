@@ -1,6 +1,6 @@
 # 👩🏻‍💻 João Goes
 
-**`Desenvolvedora FullStack`**
+**`Analista de BI`**
 
 Me chamo João Goes, tenho 25 anos e sou natural de Santa Catarina. Concluí o ensino médio em Balneário Camboriú. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na Uniasselvi. Sou apaixonado por tecnologia e compartilho meu conhecimento através do meu canal no YouTube Em breve .
 
